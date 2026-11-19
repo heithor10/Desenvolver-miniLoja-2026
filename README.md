@@ -1,0 +1,1 @@
+# Desenvolver-miniLoja-2026
